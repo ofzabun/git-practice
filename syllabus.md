@@ -25,3 +25,6 @@ Office Hours: Thursdays 5:30pm-6:20pm & by appointment
 - Earl Babbie. 2016. *The Practice of Social Research.* “Chapter 5: Conceptualization, Operationalization and Measurement,” pp. 123-154.
 
 ***RESEARCH QUESTION EXERCISE DUE – FEBRUARY 13***
+
+### Week 4 - February 20 - Causality and Experimental Research
+
