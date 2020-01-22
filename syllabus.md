@@ -28,3 +28,5 @@ Office Hours: Thursdays 5:30pm-6:20pm & by appointment
 
 ### Week 4 - February 20 - Causality and Experimental Research
 
+### Week 5 - February 27 - Qualitative Research Designs
+
